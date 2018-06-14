@@ -1,4 +1,4 @@
-Diese Bewerbung auf mehrere Stellen beim Bundeskanzlerinnenamt entstand aus einer Troll-Laune heraus binnen erschreckend kurzer Zeit in einem Etherpad einer hier nicht genannten deutschen NGO. [Das Original](/2018-06 bewerbung bkamt.pdf) haben wir dummerweise tatsächlich innerhalb der Bewerbungsfrist eingereicht. Wir hatten bislang nicht die Lust^wZeit, das Originaletherpad mit der AutorInneneinfärbung zu exportieren, aber zumindest den Text wollten wir für die Nachwelt behalten.
+Diese Bewerbung auf mehrere Stellen beim Bundeskanzlerinnenamt entstand aus einer Troll-Laune heraus binnen erschreckend kurzer Zeit in einem Etherpad einer hier nicht genannten deutschen NGO. [Das Original](/2018-06%20bewerbung%20bkamt.pdf) haben wir dummerweise tatsächlich innerhalb der Bewerbungsfrist eingereicht. Wir hatten bislang nicht die Lust^wZeit, das Originaletherpad mit der AutorInneneinfärbung zu exportieren, aber zumindest den Text wollten wir für die Nachwelt behalten.
 
 # Bewerbung als Referent*innen für das Referat 621 „Grundsatzfragen der Digitalpolitik“ (Quo vadis, Digitalisierungskompetenz im Bund?)
 
